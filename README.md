@@ -11,5 +11,5 @@
 
 
 
-   ![](https://komarev.com/ghpvc/?username=Weepycake&label=ANGELS&color=5117a9)
+   ![](https://komarev.com/ghpvc/?username=Weepycake&label=BATS&color=ff469a)
 
