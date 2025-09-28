@@ -15,4 +15,5 @@
 
 
 
-I'm living in a pink world! ˚₊‧꒰ა 🍰 . 𖦹˙— 15, finnish ! No dni
+I'm living in a pink world! ˚₊‧꒰ა 🍰 . 𖦹˙— 15, finnish ! No dni list
+I love @sanni, @henni, @hilma, @rose, 
