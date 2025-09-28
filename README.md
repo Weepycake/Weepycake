@@ -16,4 +16,8 @@
 
 
 I'm living in a pink world! ˚₊‧꒰ა 🍰 . 𖦹˙— 15, finnish ! 
+
+
+
+
 I love @sanni, @henni, @hilma, @rose ──★ ˙🍓 ̟!!
