@@ -15,7 +15,7 @@
 
 
 
-I'm living in a pink world! ˚₊‧꒰ა 🍰 . 𖦹˙— 15, finnish ! 
+🍰 . 𖦹˙— 15, finnish ! 
 
 
 
