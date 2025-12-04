@@ -11,7 +11,7 @@
 ꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷
 
 
-   ![](https://komarev.com/ghpvc/?username=Weepycake&label=Berries&color=ff3d69)
+   ![](https://komarev.com/ghpvc/?username=Weepycake&label=Stars&color=26075f)
 
 
 
@@ -20,4 +20,4 @@
 
 
 
-I love @sanni, @henni, @hilma, @rose ──★ ˙🍓 ̟!!
+I love @sanni, @henni, @hilma, @rose @Maya──★ ˙ ̟!!
