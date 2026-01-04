@@ -15,9 +15,4 @@
 
 
 
-🍰 . 𖦹˙— 15, finnish ! 
 
-
-
-
-I love @sanni, @henni, @hilma ──★ ˙ ̟!!
