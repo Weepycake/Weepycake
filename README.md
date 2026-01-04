@@ -20,4 +20,4 @@
 
 
 
-I love @sanni, @henni, @hilma, @rose @Maya──★ ˙ ̟!!
+I love @sanni, @henni, @hilma ──★ ˙ ̟!!
